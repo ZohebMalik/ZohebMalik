@@ -1,0 +1,4 @@
+- Hi, I’m Zoheb Malik.
+- My interests are coding, photography, videography, MMA and travelling/exploration.
+- I’m willing to collaborate on anything that involves any sort of combination of the things that I am interested in.
+- You can reach me through emailing (email) and I will get back to you as soon as possible.
